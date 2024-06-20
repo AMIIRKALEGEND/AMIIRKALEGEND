@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on football
 - 📫 How to reach me join github services
 - 😄 Pronouns: github g i t h u b
-- ⚡ Fun fact: ...let us make money
+- ⚡ Fun fact: ...fake gift on socialmedia
 
 <!---
 AMIIRKA LEGEND is a ✨ special ✨ repository amiirka.md welcome
